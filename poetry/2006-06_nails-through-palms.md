@@ -1,12 +1,14 @@
-# How do you plan for a future that has never been?
-_16 July 2017_
+# Nails through palms
+_June 2006_
 ```
-How do you plan for a future that has never been?
-I have never been here before
-I am a pioneer, within me a solo trail
-Unexpected outcomes will surely be,
-Though some evidence precedes me
-To plan a future that has never been
+Nails through palms
+Nails through wrists
+Betrayed by a kiss
+The Lord hung silent for a time
+Life eternal yours and mine
+Blood from every pore
+The spirit suffered more
+Christ the Master-Infinite
 ```
 —[Tod Robbins](http://todrobbins.com)
 

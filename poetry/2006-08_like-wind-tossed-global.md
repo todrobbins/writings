@@ -1,12 +1,15 @@
-# How do you plan for a future that has never been?
-_16 July 2017_
+# Like wind tossed global
+_May 2006_
 ```
-How do you plan for a future that has never been?
-I have never been here before
-I am a pioneer, within me a solo trail
-Unexpected outcomes will surely be,
-Though some evidence precedes me
-To plan a future that has never been
+Like wind tossed global
+Like water rained down
+Like light burning
+Like a city on a hill
+For the ages spoke of knowledge spread like wildfire
+Like eternal breadth
+Like flooding rays
+Peace from our Lord
+Intelligence for generations
 ```
 —[Tod Robbins](http://todrobbins.com)
 

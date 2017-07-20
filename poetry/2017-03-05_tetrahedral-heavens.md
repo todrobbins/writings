@@ -1,4 +1,4 @@
-# Tetrahedral Heavens
+# Tetrahedral heavens
 _5 March 2017_
 ```
 Tetrahedral heavens have their dense ontogenies,

@@ -1,12 +1,15 @@
-# How do you plan for a future that has never been?
-_16 July 2017_
+# Two rivers flow
+_May 2006_
 ```
-How do you plan for a future that has never been?
-I have never been here before
-I am a pioneer, within me a solo trail
-Unexpected outcomes will surely be,
-Though some evidence precedes me
-To plan a future that has never been
+Two rivers flow
+One quick and one slow
+Old man in a boat
+Well… Let’s say it didn’t float
+Two rivers flow
+One went and the other slowing
+“This river has me going,”
+Said the old man flowing
+He was in the first one
 ```
 —[Tod Robbins](http://todrobbins.com)
 

@@ -1,12 +1,14 @@
-# How do you plan for a future that has never been?
-_16 July 2017_
+# Gateways to the ancients are ivory tusks
+_May 2006_
 ```
-How do you plan for a future that has never been?
-I have never been here before
-I am a pioneer, within me a solo trail
-Unexpected outcomes will surely be,
-Though some evidence precedes me
-To plan a future that has never been
+Gateways to the ancients are ivory tusks
+Hewn up as sentinels——awaiting keywords
+And the day burns at ease.
+Ancestral congregations looming lightly
+Though anxious for lighting.
+Their sturdy witness, coupled to authorization,
+Cure the ill philosophies that lingered.
+These are waiting at the gates of celestial glories.
 ```
 —[Tod Robbins](http://todrobbins.com)
 

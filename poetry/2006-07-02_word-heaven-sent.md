@@ -1,12 +1,14 @@
-# How do you plan for a future that has never been?
-_16 July 2017_
+# Word heaven sent to heart and tongue
+_2 July 2006_
 ```
-How do you plan for a future that has never been?
-I have never been here before
-I am a pioneer, within me a solo trail
-Unexpected outcomes will surely be,
-Though some evidence precedes me
-To plan a future that has never been
+Word heaven sent to heart and tongue
+Fills the channels, fills the lungs
+Escapes the mouth to ears nearby
+The Spirit enters these and testifies:
+ “Believe My agent now present
+And hold fast to my Son’s atonement,
+Thus preparing for future ordination.”
+These words are sealed by confirmation.
 ```
 —[Tod Robbins](http://todrobbins.com)
 

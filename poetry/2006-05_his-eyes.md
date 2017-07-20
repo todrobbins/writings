@@ -1,12 +1,15 @@
-# How do you plan for a future that has never been?
-_16 July 2017_
+# His eyes
+_May 2006_
 ```
-How do you plan for a future that has never been?
-I have never been here before
-I am a pioneer, within me a solo trail
-Unexpected outcomes will surely be,
-Though some evidence precedes me
-To plan a future that has never been
+His eyes
+See the end from the beginning
+His palms
+Felt the presence of nails without length,
+Weight unending
+His heart
+Cried, “Thy will be done”
+Filled up and sealed with an everlasting atonement,
+His children ascending
 ```
 —[Tod Robbins](http://todrobbins.com)
 

@@ -1,12 +1,15 @@
-# How do you plan for a future that has never been?
-_16 July 2017_
+# Walk with light shoulders
+_May 2006_
 ```
-How do you plan for a future that has never been?
-I have never been here before
-I am a pioneer, within me a solo trail
-Unexpected outcomes will surely be,
-Though some evidence precedes me
-To plan a future that has never been
+Walk with light shoulders
+And raise eyes with the lifting of mass
+For heavy tar needs scraping
+So that hearts may soar.
+Best friends can nourish
+The sickened dying soul
+And so they should
+For the Lord God calls us to bear
+The burdens of His fold
 ```
 —[Tod Robbins](http://todrobbins.com)
 

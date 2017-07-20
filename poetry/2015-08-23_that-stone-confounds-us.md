@@ -1,4 +1,4 @@
-# That Stone Confounds Us
+# That stone confounds us
 _23 August 2015_
 ```
 That stone confounds us

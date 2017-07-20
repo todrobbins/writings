@@ -1,4 +1,4 @@
-# “Lodged in Memory”
+# Lodged in memory
 _16 July 2017_
 ```
 “Lodged in memory,”

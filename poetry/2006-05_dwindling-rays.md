@@ -1,12 +1,12 @@
-# How do you plan for a future that has never been?
-_16 July 2017_
+# Dwindling rays of a joyous countenance
+_May 2006_
 ```
-How do you plan for a future that has never been?
-I have never been here before
-I am a pioneer, within me a solo trail
-Unexpected outcomes will surely be,
-Though some evidence precedes me
-To plan a future that has never been
+Dwindling rays of a joyous countenance
+Yet light the eyes in a foreboding abyss
+His heart bursting with metallic rattle
+And his sound overbearing her subtle disconnections
+The sun now out and the river stemmed by the dam
+He awaits the rising ocean
 ```
 —[Tod Robbins](http://todrobbins.com)
 

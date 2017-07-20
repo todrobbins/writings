@@ -1,4 +1,4 @@
-# Guns to Kill
+# Guns to kill
 _22 July 2012_
 ```
 Guns to kill and guns that kill

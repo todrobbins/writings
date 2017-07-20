@@ -5,15 +5,26 @@
 
 ## [Poetry](poetry)
 
-### 2009
+### 2006
+- [__The ancient councils__ (May 2006)](poetry/2006-05_the-ancient-councils.md)
+- [__Dwindling rays of a joyous countenance__ (May 2006)](poetry/2006-05_dwindling-rays.md)
+- [__Gateways to the ancients__ (May 2006)](poetry/2006-05_gateways-to-the-ancients.md)
+- [__His blood feel to soil__ (May 2006)](poetry/2006-05_his-blood-fell-to-soil.md)
+- [__His eyes__ (May 2006)](poetry/2006-05_his-eyes.md)
+- [__Two rivers flow__ (May 2006)](poetry/2006-05_two-rivers-flow.md)
+- [__Walk with light shoulders__ (May 2006)](poetry/2006-05_walk-with-light-shoulders.md)
+- [__Nails through palms__ (June 2006)](poetry/2006-06_nails-through-palms.md)
+- [__Stand with me by these mountains__ (June 2006)](poetry/2006-06_stand-with-me.md)
+- [__Like wind tossed global__ (August 2006)](poetry/2006-08_like-wind-tossed-global.md)
 
-### 2010
+### 2008
+- [__How does a heart turn?__ (18 May 2008)](poetry/2008-05-18_how-does-a-heart-turn.md)
 
 ### 2011
-- [__My Aching Back__ (29 August 2011)](poetry/2011-08-29_my-aching-back.md)
+- [__My aching back__ (29 August 2011)](poetry/2011-08-29_my-aching-back.md)
 
 ### 2012
-- [__Guns to Kill__ (22 July 2012)](poetry/2012-07-22_guns-to-kill.md)
+- [__Guns to kill__ (22 July 2012)](poetry/2012-07-22_guns-to-kill.md)
 
 ### 2013
 
@@ -21,16 +32,16 @@
 - [__On TRAX NB__ (6 February 2014)](poetry/2014-02-06_on-trax-nb.md)
 
 ### 2015
-- [__That Stone Confounds Us__ (23 August 2015)](poetry/2015-08-23_that-stone-confounds-us.md)
+- [__That stone confounds us__ (23 August 2015)](poetry/2015-08-23_that-stone-confounds-us.md)
 
 ### 2016
-- [__New Family__ (3 January 2016)](poetry/2016-01-03_new-family.md)
-- [__How Do You Plan for a Future That Has Never Been?__ (7 August 2016)](poetry/2016-08-07_how-do-you-plan.md)
+- [__New family__ (3 January 2016)](poetry/2016-01-03_new-family.md)
+- [__How do you plan for a future that has never been?__ (7 August 2016)](poetry/2016-08-07_how-do-you-plan.md)
 
 ### 2017
-- [__Tetrahedral Heavens__ (5 March 2017)](poetry/2017-03-05_tetrahedral-heavens.md)
+- [__Tetrahedral heavens__ (5 March 2017)](poetry/2017-03-05_tetrahedral-heavens.md)
 - [__The Wasatch__ (6 March 2017)](poetry/2017-03-06_the-wasatch.md)
-- [__Lodged in Memory__ (17 July 2017)](poetry/2017-07-16_lodged-in-memory.md)
+- [__Lodged in memory__ (17 July 2017)](poetry/2017-07-16_lodged-in-memory.md)
 
 ---
 

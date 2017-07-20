@@ -1,12 +1,13 @@
-# How do you plan for a future that has never been?
-_16 July 2017_
+# His blood fell to soil
+_May 2006_
 ```
-How do you plan for a future that has never been?
-I have never been here before
-I am a pioneer, within me a solo trail
-Unexpected outcomes will surely be,
-Though some evidence precedes me
-To plan a future that has never been
+His blood fell to soil
+First through the pore
+He cherished us with toil
+In a garden, and on a cross of trees
+He saved His people
+Calling open armed,
+Pleading, “Come unto me.”
 ```
 —[Tod Robbins](http://todrobbins.com)
 
