@@ -25,6 +25,12 @@
 
 ### 2016
 - [__New Family__ (3 January 2016)](poetry/2016-01-03_new-family.md)
+- [__How Do You Plan for a Future That Has Never Been?__ (7 August 2016)](poetry/2016-08-07_how-do-you-plan.md)
+
+### 2017
+- [__Tetrahedral Heavens__ (5 March 2017)](poetry/2017-03-05_tetrahedral-heavens.md)
+- [__The Wasatch__ (6 March 2017)](poetry/2017-03-06_the-wasatch.md)
+- [__Lodged in Memory__ (17 July 2017)](poetry/2017-07-16_lodged-in-memory.md)
 
 ---
 
