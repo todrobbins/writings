@@ -6,11 +6,14 @@
 ## [Poetry](poetry)
 
 ### 2018
+- [__A solitary pheasant__ (7 January 2018)](poetry/2018-01-07_a-solitary-pheasant.md)
+- [__He spat__ (14 January 2018)](poetry/2018-01-14_he-spat.md)
 
 ### 2017
 - [__Tetrahedral heavens__ (5 March 2017)](poetry/2017-03-05_tetrahedral-heavens.md)
 - [__The Wasatch__ (6 March 2017)](poetry/2017-03-06_the-wasatch.md)
 - [__Lodged in memory__ (17 July 2017)](poetry/2017-07-16_lodged-in-memory.md)
+- [__Bread, water, blood__ (26 November 2017)](poetry/2017-11-26_bread-water-blood.md)
 
 ### 2016
 - [__New family__ (3 January 2016)](poetry/2016-01-03_new-family.md)
