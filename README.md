@@ -1,7 +1,7 @@
 # Writings by @todrobbins
 
 ## [Fiction](fiction)
-- [__Golden Contact__ (2017)](fiction/golden-contact.html) _(draft)_
+- [__Golden Contact__ (2017)](https://rawgit.com/todrobbins/writings/master/fiction/golden-contact.html) _(draft)_
 
 ## [Poetry](poetry)
 
