@@ -8,6 +8,7 @@
 ### 2018
 - [__A solitary pheasant__ (7 January 2018)](poetry/2018-01-07_a-solitary-pheasant.md)
 - [__He spat__ (14 January 2018)](poetry/2018-01-14_he-spat.md)
+- [__Color is a spectrum__ (21 January 2018)](poetry/2018-01-21_color-is-a-spectrum.md)
 
 ### 2017
 - [__Tetrahedral heavens__ (5 March 2017)](poetry/2017-03-05_tetrahedral-heavens.md)
