@@ -1,20 +1,27 @@
-# That stone confounds us
-_23 August 2015_
+# Life was given
+_15 April 2018_
 ```
-That stone confounds us
-We, the postmodern,
-see the chocolate swirls
-on geologic time,
-not what once showed on its face.
+Life was given
+a chance to breathe in
+to exhale
+and to rest
+calmly on water
+and silently on the wind.
 
-Eons and ages passed until
-farm folk held that smooth stone
-near fields, forests, wells, and mines.
+God saw,
+watching erudite and wide-eyed,
+and let life on its way
+and life left God to brood.
 
-That stone confounds us,
-discomposes our art,
-stuns our texts,
-our present.
+Generations of time
+and the orbits of stars
+passed by the gaze of God,
+but I remained fixed
+in my coexistence,
+in eternity,
+in life,
+and God saw that
+I was good.
 ```
 —[Tod Robbins](http://todrobbins.com)
 

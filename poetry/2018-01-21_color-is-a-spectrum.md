@@ -1,4 +1,4 @@
-# Color is a spectrum
+# Color is a spectrum _(draft)_
 _21 January 2018_
 ```
 Color is a spectrum

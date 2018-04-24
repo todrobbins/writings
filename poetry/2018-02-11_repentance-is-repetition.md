@@ -1,20 +1,26 @@
-# That stone confounds us
-_23 August 2015_
+# Repentance is repetition
+_11 February 2018_
 ```
-That stone confounds us
-We, the postmodern,
-see the chocolate swirls
-on geologic time,
-not what once showed on its face.
+Repentance is repetition,
+learning to love yourself
+as much as a sunrise,
+as a mother's kiss,
+or a warm smile
+given
+freely.
 
-Eons and ages passed until
-farm folk held that smooth stone
-near fields, forests, wells, and mines.
+Repeating penance,
+learning to silence
+self deprecation,
+I lower my eyelids
+to raise my eyes
+to heaven.
 
-That stone confounds us,
-discomposes our art,
-stuns our texts,
-our present.
+I can see
+infinite iterations
+of myself,
+yearning for other worlds
+better than my own.
 ```
 —[Tod Robbins](http://todrobbins.com)
 

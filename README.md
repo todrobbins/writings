@@ -8,13 +8,15 @@
 ### 2018
 - [__A solitary pheasant__ (7 January 2018)](poetry/2018-01-07_a-solitary-pheasant.md)
 - [__He spat__ (14 January 2018)](poetry/2018-01-14_he-spat.md)
-- [__Color is a spectrum__ (21 January 2018)](poetry/2018-01-21_color-is-a-spectrum.md)
+- [__Color is a spectrum__ (21 January 2018)](poetry/2018-01-21_color-is-a-spectrum.md) _(draft)_
+- [__Repentance is repetition__ (11 February 2018)](poetry/2018-02-11_repentance-is-repetition.md)
+- [__Life was given__ (15 April 2018)](poetry/2018-04-15_life-was-given.md)
 
 ### 2017
 - [__Tetrahedral heavens__ (5 March 2017)](poetry/2017-03-05_tetrahedral-heavens.md)
 - [__The Wasatch__ (6 March 2017)](poetry/2017-03-06_the-wasatch.md)
 - [__Lodged in memory__ (17 July 2017)](poetry/2017-07-16_lodged-in-memory.md)
-- [__Bread, water, blood__ (26 November 2017)](poetry/2017-11-26_bread-water-blood.md)
+- [__Bread, water, blood__ (26 November 2017)](poetry/2017-11-26_bread-water-blood.md) _(draft)_
 
 ### 2016
 - [__New family__ (3 January 2016)](poetry/2016-01-03_new-family.md)

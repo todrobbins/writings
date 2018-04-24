@@ -2,9 +2,7 @@
 _18 May 2008_
 ```
 How does a heart turn?
-
 Like a world?
-
 Like a leaf?
 
 Life is turning the pebbles in my heart-stream.
