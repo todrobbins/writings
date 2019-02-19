@@ -33,9 +33,12 @@
 - [__Guns to kill__ (22 July 2012)](poetry/2012-07-22_guns-to-kill.md)
 
 ### 2011
+- [__Endless__ (August 2011)](poetry/2011-08_endless.md)
 - [__My aching back__ (29 August 2011)](poetry/2011-08-29_my-aching-back.md)
 
 ### 2008
+- [__Buried in a stream__ (27 April 2008)](poetry/2008-04-27_buried-in-a-stream.md)
+- [__From sin to dawn__ (27 April 2008)](poetry/2008-04-27_from-sin-to-dawn.md)
 - [__How does a heart turn?__ (18 May 2008)](poetry/2008-05-18_how-does-a-heart-turn.md)
 
 ### 2006
