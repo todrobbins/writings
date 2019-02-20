@@ -10,7 +10,7 @@ with thoughts of shoreline ebb and flow.
 “We are like these waves,” you say.
 As I pull you close with my weathered hand,
 you continue, “We have also struggled against the moon,
-and have likewise earned carved our memories
+and have likewise carved our memories
 into the boundaries of this world.”
 
 “True,” I say,
