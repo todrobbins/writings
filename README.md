@@ -35,6 +35,7 @@
 ### 2011
 - [__Endless__ (August 2011)](poetry/2011-08_endless.md)
 - [__My aching back__ (29 August 2011)](poetry/2011-08-29_my-aching-back.md)
+- [__The eve of the Lord__ (December 2011)](poetry/2011-12_the-eve-of-the-lord.md)
 
 ### 2008
 - [__Buried in a stream__ (27 April 2008)](poetry/2008-04-27_buried-in-a-stream.md)
@@ -52,6 +53,7 @@
 - [__Nails through palms__ (June 2006)](poetry/2006-06_nails-through-palms.md)
 - [__Stand with me by these mountains__ (June 2006)](poetry/2006-06_stand-with-me.md)
 - [__Like wind tossed global__ (August 2006)](poetry/2006-08_like-wind-tossed-global.md)
+- [__Eat and remember__ (17 September 2006)](poetry/2006-09-17_eat-and-remember.md)
 
 
 ---
