@@ -35,6 +35,7 @@
 ### 2011
 - [__Endless__ (August 2011)](poetry/2011-08_endless.md)
 - [__My aching back__ (29 August 2011)](poetry/2011-08-29_my-aching-back.md)
+- [__Tubes of metal__ (29 August 2011)](poetry/2011-08-29_tubes-of-metal.md)
 - [__The eve of the Lord__ (December 2011)](poetry/2011-12_the-eve-of-the-lord.md)
 
 ### 2008
@@ -43,6 +44,8 @@
 - [__How does a heart turn?__ (18 May 2008)](poetry/2008-05-18_how-does-a-heart-turn.md)
 
 ### 2006
+- [__Tears felt appropriate__ (27 January 2006)](poetry/2006-01-27_tears-felt-appropriate.md)
+- [__The lime rent__ (27 January 2006)](poetry/2007-01-27_the-lime-rent.md)
 - [__The ancient councils__ (May 2006)](poetry/2006-05_the-ancient-councils.md)
 - [__Dwindling rays of a joyous countenance__ (May 2006)](poetry/2006-05_dwindling-rays.md)
 - [__Gateways to the ancients__ (May 2006)](poetry/2006-05_gateways-to-the-ancients.md)
